@@ -1,0 +1,3 @@
+Here are the homeworks I answered in FishC Forum, most of them are in Chinese, I am lack of energy and ability to translate them into other languages, so... maybe Google Translate will be a good choice(?
+also, I am not sure if its legal to put the question up here, so I will just post my answers, this might(will) cause more confusions..but to be honest, I don't think anyone will really read this...
+If you really are, maybe try doing some other things productive or make you happy?
